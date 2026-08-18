@@ -103,4 +103,5 @@ O Brasil possui território, biodiversidade, criatividade, capacidade científic
 Assumimos este compromisso diante da sociedade brasileira e das futuras gerações.
 
 Brasil, 2026
+
 Assinam esta Carta
